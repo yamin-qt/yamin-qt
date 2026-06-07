@@ -14,7 +14,7 @@ I'm YAMIN! Undergraduate in Port Management & Logistics from Bangladesh Maritime
 
 🥉 Associate Visualization Intern at Exellerate (Best Performer Award)
 
-🌍 𝐂𝐞𝐫𝐭𝐢𝐟𝐢𝐞𝐝 𝐢𝐧 𝐁𝐮𝐬𝐢𝐧𝐞𝐬𝐬 𝐀𝐧𝐚𝐥𝐲𝐭𝐢𝐜𝐬 from 𝐁𝐑𝐈𝐓 𝐂𝐨𝐥𝐥𝐞𝐠𝐞 𝐨𝐟 𝐄𝐧𝐠𝐢𝐧𝐞𝐞𝐫𝐢𝐧𝐠 & 𝐓𝐞𝐜𝐡𝐧𝐨𝐥𝐨𝐠𝐲, 𝐔𝐧𝐢𝐭𝐞𝐝 𝐊𝐢𝐧𝐠𝐝𝐨𝐦
+🌍 Certified in Business Analytics from BRIT College of Engineering & Technology, United Kingdom
 
 📊 Certified in Data Analytics from Data Solution 360 
 
